@@ -2,5 +2,4 @@
 
 
      Spero te felicem quotidie. Bellus amoris, nullum caput.
-Spero te felicem quotidie. Bellus amoris, nullum caput.Spero 
-te felicem quotidie. Bellus amoris, nullum caput.	 
+Spero te felicem quotidie.  
